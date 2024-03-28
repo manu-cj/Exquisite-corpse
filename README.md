@@ -22,5 +22,5 @@ Se retourna en direction de la boutique qui portait son nom et dit ** "je zapper
 
 
 <div align="center">
-<img href="https://tenor.com/fr/view/bachelor-loris-sapologie-betise-gif-23843082" alt="gif">
+  ![](bachelor-loris.gif)
 </div>

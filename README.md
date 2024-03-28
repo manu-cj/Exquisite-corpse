@@ -24,3 +24,5 @@ Sa mère sourit et dit : "N'oublie jamais que la vraie élégance réside dans l
 
 Ainsi, Jocelyn se lança dans une quête pour devenir le plus grand sapologue de tous les temps, avec l'amour et le soutien de sa mère à ses côtés.
 
+WOW.
+

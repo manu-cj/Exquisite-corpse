@@ -1,10 +1,10 @@
 # Exquisite-corpse
 
-**Il était une fois un sapologue nommé Jocelyn Armel mais tous le monde l'appelé le beau Bachelor.
+Il était une fois un apologue nommé Jocelyn Armel mais tout le monde l'appelé le beau Bachelier.
 
 On l'appelé comme cela parce qu'il était toujours bien habillé.
 
-Un jour il sorta et disa, "J'étais sappeur dans le ventre de ma mére, c'est pas donné à tous le monde !"**
+Un jour il sortit et disa, "J'étais sapeur dans le ventre de ma mère, ce n'est pas donné à tout le monde !"**
 
 ** Sa mère lui répondit : "Oui, mais tu n'étais pas zappé comme jamais."
 
@@ -16,4 +16,11 @@ Fier de ce que ça mere lui dit il allat en cassant la demarche vers les rue de 
 
 Une fois arriver il fit ** TROIS PAS ** et ** CLAQUA ** les talons.
 
-Se retourna en direction de la boutique qui portait son nom et dit ** "je zapperais le monde comme je me sappe" **
+Se retourna en direction de la boutique qui portait son nom et dit ** "je zapperais le monde comme je me sappe"
+
+
+
+
+<div align="center">
+<a href="https://tenor.com/fr/view/bachelor-loris-sapologie-betise-gif-23843082" alt="gif"></a>
+</div>

@@ -16,9 +16,19 @@ Fier de ce que ça mere lui dit il allat en cassant la demarche vers les rue de 
 
 Une fois arriver il fit ** TROIS PAS ** et ** CLAQUA ** les talons.
 
+
 Se retourna en direction de la boutique qui portait son nom et dit ** "je sapperais le monde comme je me sappe"
 
 
+Se retourna en direction de la boutique qui portait son nom et dit ** "je zapperais le monde comme je me sappe" **
+
+Puis Jocelyn s'écria avec détermination : "Je défierai tous les sappeurs du monde et je deviendrai le roi incontesté du style !"
+
+Sa mère sourit et dit : "N'oublie jamais que la vraie élégance réside dans le coeur, pas seulement dans les vêtements."
+
+Ainsi, Jocelyn se lança dans une quête pour devenir le plus grand sapologue de tous les temps, avec l'amour et le soutien de sa mère à ses côtés.
+
+WOW.
 
 
 <div align="center">

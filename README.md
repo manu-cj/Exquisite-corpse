@@ -26,6 +26,6 @@ Ainsi, Jocelyn se lança dans une quête pour devenir le plus grand sapologue de
 
 WOW.
 
-div align="center">
+<div align="center">
   <img src="https://media1.tenor.com/m/_Yz56zN5lDIAAAAC/bachelor-loris.gif" alt="gif" width="80%" />
 </div>

@@ -16,7 +16,7 @@ Fier de ce que ça mere lui dit il allat en cassant la demarche vers les rue de 
 
 Une fois arriver il fit ** TROIS PAS ** et ** CLAQUA ** les talons.
 
-Se retourna en direction de la boutique qui portait son nom et dit ** "je zapperais le monde comme je me sappe"
+Se retourna en direction de la boutique qui portait son nom et dit ** "je sapperais le monde comme je me sappe"
 
 
 
